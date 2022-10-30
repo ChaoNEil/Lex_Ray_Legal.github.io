@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Anudhyan is a student of Christ law School and this is his blog where he will be covering all things related to law.
